@@ -10,3 +10,4 @@
 * ["Collaborative Curriculum Design and Assessment:
 Piloting a Hybrid First-Year Writing Course" by
 Carie S. Tucker King, Sara Keeth, and Christopher J. Ryan](https://www.ncolr.org/jiol/issues/pdf/16.1.3.pdf)
+* ["How I’m Spending My Pandemic Summer Vacation" by Sarah Rose Cavanagh](https://www.chronicle.com/article/How-I-m-Spending-My-Pandemic/248954)
